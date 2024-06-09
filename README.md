@@ -6,3 +6,6 @@ https://drive.google.com/file/d/1Nn9_lpx0NSaJY8DohLKW4huvUNo7x6Nt/view?usp=shari
 
 Project link - 
 https://dqmuez0vjqxshlj.sg.qlikcloud.com/sense/app/9897b2e7-78fd-4dd8-9c30-2f02514ddb81
+
+Video Demonstration - 
+https://drive.google.com/file/d/17ykM-jYz3XAGpI17TkMxUKVn-CIjrlXb/view?usp=sharing
